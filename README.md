@@ -1,3 +1,12 @@
+# 反对日本政府排放核污染水入海！！！
+
+# 危害全世界人民的生命！！
+
+# Oppose the Japanese government's discharge of nuclear-contaminated water into the sea!!
+
+# Endangering the lives of people all over the world!!
+
+
 ## 你好，我们是下北泽工作室。
 
 ### 专注于铸造好的项目！
